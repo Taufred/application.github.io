@@ -1,4 +1,4 @@
-## Application Form
+## MindBot's Favourite Application Form!
 
 You made it to the application form! Congratulations!
 Do not forget to write down the link in the adress bar.
